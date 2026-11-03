@@ -1,6 +1,6 @@
 <div align="center">
 
-# Bleston Eliezer Vadivelu
+# Bleston Eliezer 
 **Software Engineer & Systems Builder**
 
 [pullup.vip](https://pullup.vip) &nbsp;•&nbsp; [App Store](https://pullup.vip) &nbsp;•&nbsp; [Google Play](https://pullup.vip) &nbsp;•&nbsp; [Email](mailto:bleston0412@gmail.com) &nbsp;•&nbsp; Perak, Malaysia
